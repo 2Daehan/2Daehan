@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @2Daehan
-- 👀 I’m interested in ...
-- 🎮 I’m currently playing Lost Treasures
+- 👀 I’m interested in fart
+- 🎮 I’m currently playing Lost Treasures.
 - 💞️ I’m looking to collaborate on ...
 - 📺 I'm watching kujiraarea's video.
 
